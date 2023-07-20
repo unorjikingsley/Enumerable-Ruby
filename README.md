@@ -94,7 +94,7 @@ No tests here...
 
 👤 **Unorji Kingsley**
 
-- GitHub: [@racha](https://github.com/unorjikingsley)
+- GitHub: [@Kingsley](https://github.com/unorjikingsley)
 - LinkedIn: [LinkedIn](https://www.linkedin.com/in/unorjikingsley)
 
 👤 **RACHA OULDBABAALI**
